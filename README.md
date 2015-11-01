@@ -1,4 +1,4 @@
-# NaNoGenMo-2k15
+# #NaNoGenMo 2k15
 nbbb's first #NaNoGenMo
 
 *daily:*
