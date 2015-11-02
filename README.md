@@ -1,5 +1,5 @@
 # #NaNoGenMo 2k15
-nbbb's first #NaNoGenMo
+nbbb's first #NaNoGenMo ~ <a href="http://twitter.com/swayandsea">follow me on twitter</a> ~ <a href="http://patreon.com/sui">support my work</a>
 
 ## methods
 
